@@ -3,10 +3,10 @@
 Are you searching for the latest version of the adguard apk premium APK? Look no further! We provide a free and secure download link for the official adguard apk premium APK, ensuring you get the most up-to-date and trusted version. Whether you're a new user or someone looking to upgrade, our download link guarantees a fast and smooth installation process.
 
 
-## [DOWNLOAD HERE >> adguard apk premium](http://leaked.freeplayer.one?title=adguard_apk_premium&ref=06)
+## [DOWNLOAD HERE >> adguard apk premium](http://modyolo.com)
   <br>
 
-## [DOWNLOAD HERE >> adguard apk premium](http://leaked.freeplayer.one?title=adguard_apk_premium&ref=06)
+## [DOWNLOAD HERE >> adguard apk premium](http://modyolo.com)
   <br>
   ##
 
